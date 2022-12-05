@@ -1,0 +1,2 @@
+# krishna
+ready to learn
